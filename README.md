@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @Gagik-hov
+# 👋 Hi, I’m Gagik Hovhannisyan
 🔧 Product Designer | Systems Engineer | Robotics & Automation Expert  
 
 ## 👀 About Me  
